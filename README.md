@@ -1,1 +1,1 @@
-# Jugend-forscht---Synchronisierte-Kerzen
+Synchronisierte-Kerzen
